@@ -1,2 +1,2 @@
-Peromyscus eremicus seminal vessicle proteome supplemental materials
+Peromyscus eremicus seminal vesicle proteome supplemental materials
 ======
